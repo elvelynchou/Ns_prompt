@@ -1,3 +1,10 @@
+Realistic style, real photography, highest quality, super detailed, erotic, 2 young Russian ballerinas, different ages, different face shapes, dancing in pairs, standing on tiptoe, graceful and passionate, pale complexion, smooth black hair, oiled nude, provocative, dynamic, jumping, shaved pussy, intense, blue eyes, focus and power., striking painting, full of energy
+
+写实风格，真实摄影，最高画质、超详细、色情、2 名俄罗斯年轻芭蕾舞演员、不同年龄，不同脸型,双人舞姿，脚尖直立, 优雅而充满激情、苍白的肤色、光滑黑发、涂油的裸体、挑逗、动态、跳跃、剃光的阴部、强烈、蓝色的眼睛、专注和力量。、引人注目的画作、充满活力
+
+
+
+
 An elegant and beautiful young sexy Japanese woman in her 20s, with dark wavy hair tied up in a high bun, wearing low-key round rose gold glasses, wearing a dark printed long-sleeved dress, with the upper body buttons half-unbuttoned, revealing her plump breasts and nipples clearly visible, and a belt tied around her waist. Low-key silver necklace and silver watch, she is walking down from a vintage train carriage, holding a textured handbag in her right hand. The carriage is dimly colored, with huge rectangular windows and ornate door frames. The scene in the photo seems to be a train platform, as can be seen from the edge of the plane visible under the train. The overall color tone is reminiscent of retro movie style.
 
 一位20岁左右优雅美丽的日本年轻性感女子，她一头黑色深色波浪卷发盘成高髻，戴着低调的圆形玫瑰金眼镜,身着深色印花长袖连衣裙，上半身扣子半敞开着，露出丰满的乳房和乳头清晰可见，腰间系着腰带。低调的银项链和银色手表，她正从一辆老式火车车厢走下来，右手拿着一个纹理手提包。车厢颜色昏暗，配有巨大的矩形窗户和华丽的门框。照片中的场景似乎是火车站台，从火车下方可见的平面边缘可以看出。整体色调令人联想到复古电影风格。
