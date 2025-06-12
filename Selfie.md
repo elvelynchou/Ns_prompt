@@ -1,6 +1,6 @@
-Realistic style, real photography, highest quality, super detailed, erotic, 2 young Russian ballerinas, different ages, different face shapes, dancing in pairs, standing on tiptoe, graceful and passionate, pale complexion, smooth black hair, oiled nude, provocative, dynamic, jumping, shaved pussy, intense, blue eyes, focus and power., striking painting, full of energy
+Cinematic, Realistic style, real photography, highest quality, super detailed, erotic, a young Russian ballerina performing on stage, dancing gracefully and passionately, pale complexion, smooth black hair, completely nude, neutral breasts, pink nipples, provocative, dynamic, jumping, little pubic hair, pink vagina, intense, blue eyes, focus and power, striking painting, full of energy
 
-写实风格，真实摄影，最高画质、超详细、色情、2 名俄罗斯年轻芭蕾舞演员、不同年龄，不同脸型,双人舞姿，脚尖直立, 优雅而充满激情、苍白的肤色、光滑黑发、涂油的裸体、挑逗、动态、跳跃、剃光的阴部、强烈、蓝色的眼睛、专注和力量。、引人注目的画作、充满活力
+写实风格，真实摄影，最高画质、超详细、色情、1名俄罗斯年轻芭蕾舞演员在舞台表演、舞姿优雅而充满激情、苍白的肤色、光滑黑发、全身裸体、中性胸部,粉色的乳头,挑逗、动态、跳跃、少许阴毛,粉红阴部、强烈、蓝色的眼睛、专注和力量, 引人注目的画作、充满活力
 
 
 
