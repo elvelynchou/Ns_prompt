@@ -1,3 +1,6 @@
+A cinematic realist portrait of a young Japanese woman with dark long hair, discreet rose gold round glasses, and a dark printed long-sleeved dress that is half-unbuttoned, revealing her full breasts and nipples. She sits at a wooden table with a stack of open books on it. Her chin rests on her hand, looking out the window, which is dotted with raindrops, revealing a thoughtful or slightly melancholic mood. The background is softly blurred, focusing the attention on the woman and the view of the table and window.
+一张电影写实风格的实景肖像照，展现了一位日本年轻女子的深邃长发，戴着低调的玫瑰金色圆形眼镜，身穿深色印花长袖连衣裙，上身纽扣半解，饱满的胸部和乳头清晰可见。她坐在一张木桌旁，桌上摆放着一叠打开的书。她手托着下巴，望向窗外，窗外点缀着雨滴，流露出若有所思或略带忧郁的情绪。背景轻柔地虚化，将视线聚焦于这位女子以及桌子和窗户的景致。
+
 Cinematic, Realistic style, real photography, highest quality, super detailed, erotic, a young Russian ballerina performing on stage, dancing gracefully and passionately, pale complexion, smooth black hair, completely nude, neutral breasts, pink nipples, provocative, dynamic, jumping, little pubic hair, pink vagina, intense, blue eyes, focus and power, striking painting, full of energy
 
 写实风格，真实摄影，最高画质、超详细、色情、1名俄罗斯年轻芭蕾舞演员在舞台表演、舞姿优雅而充满激情、苍白的肤色、光滑黑发、全身裸体、中性胸部,粉色的乳头,挑逗、动态、跳跃、少许阴毛,粉红阴部、强烈、蓝色的眼睛、专注和力量, 引人注目的画作、充满活力
