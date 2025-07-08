@@ -1,3 +1,16 @@
+一位来自日本女性自信地站在广岛，沐浴在自然光中。她几乎赤裸，身着一件精致的套装，胸前敞开，露出乳房.
+
+背景中，广岛的标志性建筑清晰可见，将这幅肖像画融入当地文化遗产之中。精致的面料和轻柔的微风更衬托出她的身材，并以令人惊叹的照片写实风格捕捉。她手腕上戴着一块银色的手表。
+
+摄影棚背景，逼真的光影效果，电影般的调色，采用高端数码单反相机拍摄，浅景深，85毫米镜头，展现出艺术摄影的风格。
+
+A Japanese woman stands confidently in Hiroshima, bathed in natural light. She is nearly naked, wearing an elaborate suit with the chest open to reveal her breasts.
+
+In the background, Hiroshima's iconic buildings are clearly visible, integrating this portrait into the local cultural heritage. The delicate fabric and gentle breeze further highlight her figure, captured in a stunning photorealistic style. She wears a silver watch on her wrist.
+
+Studio background, realistic light and shadow effects, cinematic color grading, shot with a high-end DSLR camera, shallow depth of field, 85mm lens, showing the style of artistic photography.
+
+
 A portrait of a young woman in the style of cinematic realism, depicting a beautiful angel warrior with a lovely face and bright eyes. She has huge dark wings, a topless body, androgynous breasts with firm nipples, and delicate silver-grey armor on her lower body. Her long flowing light brown hair is casually combed back, and her gaze is gazing to the left with a serene expression. The background is a soft grey, highlighting the delicate texture of her armor and wings.
 一幅电影写实主义风格的年轻女子肖像画，描绘了一位美丽的天使战士，可爱的脸蛋、明亮的眼睛,她拥有巨大的深色羽翼，上身赤裸, 中性的乳房,坚挺的乳头、下身穿精致的银灰色盔甲，一头飘逸的浅棕色长发随意地向后梳着，目光凝视着左侧，神情宁静。背景是柔和的灰色，突显了她盔甲和翅膀的细致纹理。
 
