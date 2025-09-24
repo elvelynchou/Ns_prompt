@@ -1,3 +1,6 @@
+The subject of the photo is the character from the  image, with their facial features, features, and hairstyle strictly preserved. She is naked,  a topless body, androgynous breasts with firm nipples
+
+
 一位来自日本女性自信地站在广岛，沐浴在自然光中。她几乎赤裸，身着一件精致的套装，胸前敞开，露出乳房.
 
 背景中，广岛的标志性建筑清晰可见，将这幅肖像画融入当地文化遗产之中。精致的面料和轻柔的微风更衬托出她的身材，并以令人惊叹的照片写实风格捕捉。她手腕上戴着一块银色的手表。
