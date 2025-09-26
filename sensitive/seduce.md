@@ -1,0 +1,9 @@
+这张杰作堪称顶级画质，细节丰富，极具电影感的照片展现了一位美丽的年轻女子，她拥有飘逸的铂金色长发、饱满明亮的大眼睛、逼真的肌肤纹理、柔和的腮红和光彩照人的双唇。她身着精致的白色的丝绸长袍，饰有精致的蕾丝花边，丝绸长袍之下有突起的乳头，在搭配简约的金项链和钻石吊坠，以及璀璨的钻石耳环。透过窗户，柔和温暖的自然光照亮了场景，营造出柔和的高光和体积阴影。画面风格融合了半写实的动漫风格和照片写实主义，采用虚幻引擎渲染，分辨率高达 8K，浅景深的镜头聚焦于她宁静的表情。
+This masterpiece, a stunning image of top-quality detail and cinematic quality, depicts a beautiful young woman with flowing platinum hair, large, full, luminous eyes, realistic skin texture, soft blush, and radiant lips. She wears an exquisite white silk gown embellished with delicate lace, revealing her nipples beneath. She accessorizes the image with a simple gold necklace and diamond pendant, along with dazzling diamond earrings. Soft, warm natural light from a window illuminates the scene, creating soft highlights and volumetric shadows. The image style blends semi-realistic anime style with photorealism, rendered in Unreal Engine at a high resolution of 8K, with a shallow depth of field focusing on her serene expression.
+
+This masterpiece, top-quality, ultra-detailed, cinematic image depicts a beautiful young Japanese woman with long, flowing black hair, large, luminous eyes, realistic skin texture, and hydrated, lustrous lips. She wears an exquisite white silk robe with intricate lace detailing, concealing her protruding nipples. She also wears a simple gold necklace with a diamond-shaped pendant and sparkling diamond earrings. The scene is illuminated by soft, warm natural light from a window, creating gentle highlights and volumetric shadows. The style blends semi-realistic anime with photorealism, rendered in Unreal Engine at 8K resolution with a shallow depth of field, focusing on her serene, gentle expression.
+
+
+
+
+杰作，最佳质量，超精细，电影级照片，一位美丽的日本年轻女子，拥有长长的飘逸黑色头发，明亮动人的大眼睛，逼真的皮肤纹理，嘴唇水润有光泽。她身穿一件精致的白色丝绸长袍，丝绸长袍之下有隐藏着突起的乳头，带有复杂的蕾丝花边，戴着一条简约的金色项链，吊坠为钻石形状，并佩戴着闪亮的钻石耳环。场景由窗户射入的柔和、温暖的自然光照亮，营造出柔和的高光和体积阴影。风格融合了半写实动漫与照片写实主义，使用虚幻引擎渲染，8K分辨率，浅景深，焦点集中在她宁静柔和的表情上。
